@@ -1,0 +1,2 @@
+# postgraduate-D47
+Today's computer has a big problem. The card can't work, and the disk can't be compressed. I've restarted it many times just by forcing it to restart. I'm really tired. I won't choose Shenzhou computer in the future. It's heavy and inconvenient. I think it may be the problem of the disk or the problem of the hard disk. I have to dismantle the machine to know these. It's very annoying and a waste of my day.
